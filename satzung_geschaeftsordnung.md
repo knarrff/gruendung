@@ -67,7 +67,7 @@
    1. Der Schatzmeister überwacht die Haushaltsführung und verwaltet das Vermögen des Vereins. Näheres regelt die Geschäftsordnung.
    1. Vorstandsmitglieder können jederzeit von ihrem Amt zurücktreten.
    1. Bei Rücktritt oder andauernder Ausübungsunfähigkeit eines Vorstandsmitglieds ist der gesamte Vorstand neu zu wählen. Bis zur Wahl eines neuen Vorstands ist der bisherige Vorstand zur bestmöglichen Wahrnehmung seiner Aufgaben verpflichtet.
-   1. Die Amtsdauer der Vorstandsmitglieder beträgt ein Jahr. Sie werden von der Mitgliederversammlung aus den ordentlichen Mitgliedern des Vereins gewählt. Es werden nacheinander Vorstandsvorsitzender, Schatzmeister und Schriftführer sowie. Eine Wiederwahl ist beliebig oft zulässig.
+   1. Die Amtsdauer der Vorstandsmitglieder beträgt ein Jahr. Sie werden von der Mitgliederversammlung aus den ordentlichen Mitgliedern des Vereins gewählt. Es werden nacheinander Vorstandsvorsitzender, Schatzmeister und Schriftführer gewählt. Eine Wiederwahl ist beliebig oft zulässig.
    1. Der Vorstand ist Dienstvorgesetzter aller vom Verein angestellten Mitarbeiter. Er kann diese Aufgabe einem Vorstandsmitglied übertragen.
    1. Die Vorstandsmitglieder sind grundsätzlich ehrenamtlich tätig. Sie haben Anspruch auf Erstattung notwendiger Auslagen, deren Rahmen von der Geschäftsordnung festgelegt wird.
    1. Der Vorstand tritt nach Bedarf zusammen. Die Vorstandssitzungen werden vom Schriftführer schriftlich gemäß §11 einberufen. Der Vorstand ist beschlussfähig, wenn mindestens zwei Drittel der Vorstandsmitglieder anwesend sind.
